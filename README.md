@@ -8,6 +8,6 @@
 - 👯 I’m looking to collaborate on Big development projects! 
 - 📫 How to reach me: rcjesusdavid@gmail.com
 - ⚡ Be optimistic,
- About me:
-Apasionado con el mundo de la tecnología, entusiasta y perseverante. Mente abierta nuevos conocimientos, organizado, optimista, bueno trabajando en equipo, comunicativo.
+- About me:
+- Apasionado con el mundo de la tecnología, entusiasta y perseverante. Mente abierta nuevos conocimientos, organizado, optimista, bueno trabajando en equipo, comunicativo.
 
